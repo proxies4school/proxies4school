@@ -1,4 +1,4 @@
-# proxies4school
-We post proxies you can use during school or whenever 
-Owned by Unknown and Unknown (Not trying to get caught)
-Releasing proxies very soon
+# Proxies For School
+
+Its owned by 2 people
+For educational purposes, we did NOT make these, we are reposting them.
